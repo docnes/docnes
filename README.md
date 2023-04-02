@@ -1,3 +1,3 @@
 # Dr. Randy T. Johnson
 
-## About Me
+## Pastor, Counselor, Teacher, Coach
